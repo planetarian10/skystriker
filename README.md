@@ -1,5 +1,5 @@
 # skystriker
-闪刀卡垫/卡套图
+闪刀卡垫/卡套图 左上可打开文档目录
 
 <a name="tcaoi"></a>
 ## 由夜
@@ -104,7 +104,7 @@
 接下来是国内约稿，[芋头芋头芋](https://www.pixiv.net/users/70491159)，有少量卡垫作品，均为有水印版（但水印很好看），无水印版可前往画师淘宝店铺**在芋头星球画画**购买。
 <a name="z6hQd"></a>
 ### 闪刀姬与小喷气
-[插画地址](https://www.pixiv.net/artworks/96817053)<br />![97005645_p0.jpg](https://cdn.nlark.com/yuque/0/2022/jpeg/1689887/1667390019984-49bc6c02-786d-40c9-9564-0da3a4c647bc.jpeg#clientId=u0788d3b9-c9f5-4&crop=0&crop=0&crop=1&crop=1&from=ui&id=uc1bedbae&margin=%5Bobject%20Object%5D&name=97005645_p0.jpg&originHeight=3500&originWidth=6000&originalType=binary&ratio=1&rotation=0&showTitle=false&size=10452191&status=done&style=none&taskId=u578a5e34-ab6b-4f68-a4dc-2710566dd4a&title=)
+[插画地址](https://www.pixiv.net/artworks/96817053)<br />![未标题-1.png](https://cdn.nlark.com/yuque/0/2022/png/1689887/1667393624815-24123dfd-8a25-49a6-b815-6f3acbf8e9a7.png#clientId=ucd311f93-5a5b-4&crop=0&crop=0&crop=1&crop=1&from=ui&id=uda4a7c5d&margin=%5Bobject%20Object%5D&name=%E6%9C%AA%E6%A0%87%E9%A2%98-1.png&originHeight=1750&originWidth=3000&originalType=binary&ratio=1&rotation=0&showTitle=false&size=10416528&status=done&style=none&taskId=ud576b6d0-6950-4585-91bb-b6e5c456401&title=)
 <a name="PEA9b"></a>
 ## 雪夏sf
 [雪夏sf](https://space.bilibili.com/10465382)今年有张约稿卡垫，右下有签名，由于可能出现版权问题，这个就只放小图了，想找原图的自己去找，还是比较轻松的。
