@@ -104,7 +104,7 @@
 接下来是国内约稿，[芋头芋头芋](https://www.pixiv.net/users/70491159)，有少量卡垫作品，均为有水印版（但水印很好看），无水印版可前往画师淘宝店铺**在芋头星球画画**购买。
 <a name="z6hQd"></a>
 ### 闪刀姬与小喷气
-[插画地址](https://www.pixiv.net/artworks/96817053)<br />![未标题-1.png](https://cdn.nlark.com/yuque/0/2022/png/1689887/1667393624815-24123dfd-8a25-49a6-b815-6f3acbf8e9a7.png#clientId=ucd311f93-5a5b-4&crop=0&crop=0&crop=1&crop=1&from=ui&id=uda4a7c5d&margin=%5Bobject%20Object%5D&name=%E6%9C%AA%E6%A0%87%E9%A2%98-1.png&originHeight=1750&originWidth=3000&originalType=binary&ratio=1&rotation=0&showTitle=false&size=10416528&status=done&style=none&taskId=ud576b6d0-6950-4585-91bb-b6e5c456401&title=)
+[插画地址](https://www.pixiv.net/artworks/96817053)<br />![未标题-1.jpg](https://cdn.nlark.com/yuque/0/2022/jpeg/1689887/1667393922811-00548410-4b8a-4a64-836c-3ef4fc9715b2.jpeg#clientId=u748a57fb-9723-4&crop=0&crop=0&crop=1&crop=1&from=ui&id=u1ad47c48&margin=%5Bobject%20Object%5D&name=%E6%9C%AA%E6%A0%87%E9%A2%98-1.jpg&originHeight=875&originWidth=1500&originalType=binary&ratio=1&rotation=0&showTitle=false&size=1878070&status=done&style=none&taskId=u36d3eb9d-23e1-4e09-a90b-e02ba9c3651&title=)
 <a name="PEA9b"></a>
 ## 雪夏sf
 [雪夏sf](https://space.bilibili.com/10465382)今年有张约稿卡垫，右下有签名，由于可能出现版权问题，这个就只放小图了，想找原图的自己去找，还是比较轻松的。
@@ -117,3 +117,4 @@
 接下来就只剩下pixiv上有的图了，数量太多，可以移步至[我的收藏夹](https://www.pixiv.net/users/40822751)查看。![QQ截图20221101060335.png](https://cdn.nlark.com/yuque/0/2022/png/1689887/1667390521823-65f5bdd9-68d4-4e86-930d-7d4a7caa48d0.png#clientId=u0788d3b9-c9f5-4&crop=0&crop=0&crop=1&crop=1&from=ui&id=u4a180501&margin=%5Bobject%20Object%5D&name=QQ%E6%88%AA%E5%9B%BE20221101060335.png&originHeight=927&originWidth=1254&originalType=binary&ratio=1&rotation=0&showTitle=false&size=1801120&status=done&style=none&taskId=u90415f07-69e1-43f7-aaa6-99311087307&title=)<br />找图时，可以关注画师的其它作品以及作品页下方的推荐，也会有很多好图。
 <a name="nu8C2"></a>
 ## 
+
